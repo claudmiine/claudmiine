@@ -1,4 +1,5 @@
-### Hi there 👋
+### Nice to have you here! 👋
+### I'm Klaudia 🧝🏻‍♀️
 
 <!--
 **claudmiine/claudmiine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

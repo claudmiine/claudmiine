@@ -6,7 +6,7 @@ Welcome to my github account, here's maybe what you looking for. Help yourself.�
 
 I'm looking for you to help with a project ,or even better, collaborate together! Hands on track, my friend. 👩🏼‍💻🤝
 
-You can hit me up at my linkedin: https://www.linkedin.com/in/klaudia-wojcieska-692852203/ 📨
+You can hit me up at my linkedin: www.linkedin.com/in/klaudia-wojcieska 📨
 
 
 

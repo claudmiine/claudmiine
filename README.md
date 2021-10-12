@@ -1,6 +1,6 @@
 ### Nice to have you here! I'm Klaudia 🧝🏻‍♀️
 
-Currently I'm a 2nd year *student of software engineering* who came to London in search of double "D": Diploma👩🏼‍🎓&Dog🐶. Oh you didn’t ask? Too bad.
+Currently I'm a 2nd year *student of software engineering* who came to London in search of double "D": Degree👩🏼‍🎓&Dog🐶. Oh you didn’t ask? Too bad.
 
 Welcome to my github account, here's maybe what you looking for. Help yourself.🤌🏻
 
